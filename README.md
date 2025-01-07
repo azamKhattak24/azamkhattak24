@@ -14,7 +14,6 @@
 
 - 📫 How to reach me: **azamkhattak99@gmail.cpm**
 
-- ⚡ Fun fact: **I wish to become a stand up comedian in the future.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
